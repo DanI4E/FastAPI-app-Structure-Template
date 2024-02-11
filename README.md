@@ -8,3 +8,6 @@
 [![Watch the video](https://img.youtube.com/vi/IpSRs6ZNA5k/0.jpg)](https://youtu.be/IpSRs6ZNA5k)
 
 Посмотрю видео обязательно!
+
+
+Посмотреть https://habr.com/ru/companies/yandex_praktikum/articles/700708/
