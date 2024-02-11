@@ -6,3 +6,5 @@
 ##### You can learn more about this structure from this video
 
 [![Watch the video](https://img.youtube.com/vi/IpSRs6ZNA5k/0.jpg)](https://youtu.be/IpSRs6ZNA5k)
+
+Посмотрю видео обязательно!
